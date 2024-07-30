@@ -12,5 +12,5 @@ eloapinhata17@gmail.com
 
 
 
-![descrição do GIF](![image](https://github.com/user-attachments/assets/385fc7af-4375-4dbb-909b-1f28b0737b59)
-)
+
+https://tenor.com/pt-BR/view/heart-i-love-you-ily-love-wade-wilson-gif-11696862
