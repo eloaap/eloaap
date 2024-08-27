@@ -10,7 +10,4 @@ Meu nome é *eloa*
 
 eloapinhata17@gmail.com
 
-
-
-
 ![](https://tenor.com/pt-BR/view/beluga-gif-24844169)
