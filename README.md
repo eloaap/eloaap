@@ -13,4 +13,4 @@ eloapinhata17@gmail.com
 
 
 
-![tenor](https://tenor.com/pt-BR/view/beluga-gif-24844169)
+![tenor](https://tenor.com/pt-BR/view/beluga-the-cat-hakosh1307-hakosh-beluga-cat-hug-gif-22532913)
